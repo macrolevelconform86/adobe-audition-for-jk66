@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS transition with Adobe Audition for macOS smart Transition: reverb & scene-transitions. Featuring reverb and scene-transitions, it's the
 
 
 
